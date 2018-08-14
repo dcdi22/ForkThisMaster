@@ -1,0 +1,1 @@
+* This is a note about sitting together under the smoggy Atlanta sky.
